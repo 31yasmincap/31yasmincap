@@ -16,3 +16,6 @@ Gosto de tocar Violino
 
 ![Alt](https://pa1.aminoapps.com/7733/52f0f1a6c9a69c4a93173a4d237374bf7870c559r1-540-304_hq.gif)
 
+Gosto de Animes(One Piece é meu favorito)
+
+![Alt](https://assets.puzzlefactory.com/puzzle/259/479/original.webp)
